@@ -3,8 +3,8 @@
 - **𓂃ㅤanyㅤノㅤall pronouns ,, or no pronouns**
 - **autistic , bpd + dyslexia questioning**
 - **gaybianㅤ;ㅤpansexualㅤ;ㅤturigirlㅤ;ㅤbutchfemme (futch)**
-- **aroacefluxㅤ;ㅤfictoroseㅤ;ㅤaegosexual**
-- **genderfluidㅤ;ㅤboygirlㅤ;ㅤagenderflux**
+- **aroacefluxㅤ;ㅤfictoroseㅤ;ㅤaegosexualㅤ;ㅤquoiromantic**
+- **genderfluidㅤ;ㅤboygirlㅤ;ㅤagenderfluxㅤ;ㅤimplaflux**
 - **fandoms im in: wip ....**
 - **yumeshipperㅤ;ㅤprofiction (unfollow me if u have "proship" in ur dni list, idc about ship discourses)ㅤ;ㅤcrackshipperㅤ;ㅤmultishipperㅤ;ㅤhimefujoshi**
 
