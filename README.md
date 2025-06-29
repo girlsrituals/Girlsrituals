@@ -1,16 +1,11 @@
-## Hi there 👋
+- <ins>art belongs to entomogia on tumblr</ins>
+![graphic by me](https://i.postimg.cc/BvfW2WhK/103-Sem-T-tulo-20250629174218.png)
+- **𓂃ㅤanyㅤノㅤall pronouns ,, or no pronouns**
+- **autistic , bpd + dyslexia questioning**
+- **gaybianㅤ;ㅤpansexualㅤ;ㅤturigirlㅤ;ㅤbutchfemme (futch)**
+- **aroacefluxㅤ;ㅤfictoroseㅤ;ㅤaegosexual**
+- **genderfluidㅤ;ㅤboygirlㅤ;ㅤagenderflux**
+- **fandoms im in: wip ....**
+- **yumeshipperㅤ;ㅤprofiction (unfollow me if u have "proship" in ur dni list, idc about ship discourses)ㅤ;ㅤcrackshipperㅤ;ㅤmultishipperㅤ;ㅤhimefujoshi**
 
-<!--
-**girlsrituals/Girlsrituals** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- **main rentry(wip)ㅤ;ㅤmy links(wip)ㅤ;ㅤ [yumeship list](https://rentry.co/--kris) ㅤ;ㅤ [my resources](https://rentry.co/blehface)**
